@@ -8,6 +8,8 @@ in this field.
 
 📫 How to reach me: fadyyessam11@gmail.com
 
+[LinkedIn :]([https://www.google.com](https://www.linkedin.com/in/fady-essam-41936721a/))
+
     
 
 
