@@ -10,10 +10,7 @@ in this field.
     
 🔗 LinkedIn: https://www.linkedin.com/in/fady-essam-41936721a/
 
-📃Resume: 
-
-
-
+📃Resume: https://drive.google.com/drive/u/0/my-drive
 
 
 <!--
