@@ -11,6 +11,7 @@ in this field.
 LinkedIn: https://www.linkedin.com/in/fady-essam-41936721a/
 
     
+🔗 How to reach me: fadyyessam11@gmail.com   -    https://www.linkedin.com/in/fady-essam-41936721a/
 
 
 
