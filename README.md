@@ -6,12 +6,9 @@ in this field.
 
 🌱 I’m currently learning in department of artificial intelligence in FCAI
 
-📫 How to reach me: fadyyessam11@gmail.com  -   https://www.linkedin.com/in/fady-essam-41936721a/
-
-LinkedIn: https://www.linkedin.com/in/fady-essam-41936721a/
-
+📫 How to reach me: fadyyessam11@gmail.com  
     
-🔗 How to reach me: fadyyessam11@gmail.com   -    https://www.linkedin.com/in/fady-essam-41936721a/
+🔗 LinkedIn: https://www.linkedin.com/in/fady-essam-41936721a/
 
 
 
