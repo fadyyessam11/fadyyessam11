@@ -12,7 +12,7 @@ LinkedIn: https://www.linkedin.com/in/fady-essam-41936721a/
 
     
 
- ![build succeeded](https://img.shields.io/badge/build-succeeded-brightgreen.svg)
+ ![build succeeded]([https://img.shields.io/badge/build-succeeded-brightgreen.svg](https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg))
 
 
 
