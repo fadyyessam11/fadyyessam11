@@ -4,7 +4,8 @@ in field of Artificial intelligence, seeking for a career in machine learning an
 in this field and very dedicated to working, creative, and eager to learn.
 
 
-🌱 I’m currently learning ...
+🌱 I’m currently learning in the Department of Artificial Intelligence in FCAI
+
 📫 How to reach me: fadyyessam11@gmail.com
 
 
