@@ -1,10 +1,10 @@
 ### Hi 👋 My name is Fady Essam 
 Student in faculty of computers and artificial intelligence, Studying very hard to gain skills and experience
 in field of Artificial intelligence, seeking for a career in machine learning and data science and hoping to become more knowledgeable and advanced
-in this field and very dedicated to working, creative, and eager to learn.
+in this field.
 
 
-🌱 I’m currently learning in the Department of Artificial Intelligence in FCAI
+🌱 I’m currently learning in department of artificial intelligence in FCAI
 
 📫 How to reach me: fadyyessam11@gmail.com
 
