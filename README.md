@@ -5,6 +5,7 @@ in this field and very dedicated to working, creative, and eager to learn.
 
 
 🌱 I’m currently learning ...
+📫 How to reach me: fadyyessam11@gmail.com
 
 
 <!--
